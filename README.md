@@ -1,1 +1,1 @@
-Data Analytics | Novitech R&D Pvt Ltd | 2025 |
+Data Analytics| Artificial Intelligence | Machine Learning | Novitech R&D Pvt Ltd | 2025 |
